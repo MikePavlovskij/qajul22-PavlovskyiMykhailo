@@ -1,1 +1,0 @@
-# qajul22-PavlovskyiMykhailo
